@@ -1,0 +1,2 @@
+# Portfolio
+ A collection of my work, projects, and achievements that showcase my skills, experiences, and growth over the course of my education. This serves various purposes and can be tailored to my goals, whether they are academic, career-oriented, or personal development. these includes Coursework, Grades and Transcripts, Resume, Internship and Work Experience, Projects, Skills, Leadership Roles, Community Involvement, Awards and Recognitions, Artwork, Writing Samples, Personal Essays and Goals and Aspirations.
